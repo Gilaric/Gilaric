@@ -10,7 +10,10 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ...
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: Discord: Gilaric #7260 Steam: https://steamcommunity.com/id/Gilaric/ Origin: Gilaric.
+- 📫 How to reach me: Discord: Gilaric #7260 
+- Steam: https://steamcommunity.com/id/Gilaric/ 
+- Origin: Gilaric
+- Uplay: Gilaric
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Idk
 -->
