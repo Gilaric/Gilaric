@@ -11,4 +11,4 @@
 - Uplay: Gilaric
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Idk
-- 
+- https://Gilaric.com
